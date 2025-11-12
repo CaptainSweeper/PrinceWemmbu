@@ -37,10 +37,12 @@ ORIGINALLY AS: @dummyinbed ,,
   
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
 
-I like any duos, Mutiny Duo, Inversion Duo, and so on.
-    This is regular text. <small>This text is smaller.</small>
+TAX DUO HEAVY COMF / C'link ,
 
-I enjoy acting "In Character" acting rude or blunt toward people who are in character as well, Do NOT take me being dry or rude seriously.
+I heavykin eggchan, doubles are okay but please dont rub it in my face
+
+Wemmbu kins are more than welcome to call themself wemmbu around me
+
 ![image alt](https://media.discordapp.net/attachments/1028737434252488756/1436841118242443384/IMG_8496.jpg?ex=69111211&is=690fc091&hm=f35ec35abfd839929d8d2a3cca7bbc12b0ff69b56be81a80f3765552995d6157&=&format=webp&width=846&height=846)
 
 𝘏𝘦𝘭𝘭𝘰 [𝘈𝘶𝘣𝘳𝘦𝘦,,♡](https://github.com/sspacedoutz) !
