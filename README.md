@@ -5,15 +5,23 @@
 
 ═════════════════════════════════════════════════════════════════════════════════════
 
-$${\color{white}Blinds \space \color{white} Wide \space \color{white} Open  \space \color{white}So  \space \color{purple},He  \space \color{white}Can  \space \color{white}See \space \color{white}You \space \color{white}When \space \color{white}You're  \space \color{white}Sleepin. \space \color{white}``{}}$$
+$${\color{white}Theres \space \color{white} More \space \color{white} Ways  \space \color{white}To  \space \color{white}Be \space \color{white}Strong  \space \color{white}Than \space \color{white}PvP'ing \space \color{white}Y'know? {}}$$
 
-![](https://media.discordapp.net/attachments/1028737434252488756/1436846747576963102/IMG_8661.jpg?ex=6911174f&is=690fc5cf&hm=565c9ba0bf8c24f99b2644d3fb415bd72a1297ed27efd3765f8158aa0beb69a2&=&format=webp&width=1165&height=846)
+![](https://media.discordapp.net/attachments/1028737434252488756/1438005105411625141/IMG_8791.jpg?ex=69154e1d&is=6913fc9d&hm=118bb7e28aa4ecbf7e8a9363f0165d6db2eae44a6858f40e7c07fb25a59c398c&=&format=webp&width=1093&height=846)
 
 <div align="center">
 
-$${\color{white}The \space \color{white} Night \space \color{white} Light  \space \color{white}Off,  \space \color{white}Turnin'  \space \color{white}Soft  \space \color{white}Kisses \space \color{white}To \space \color{white}Bites\space {}}$$
+$${\color{white}You \space \color{white}Might \space \color{white} Be  \space \color{white}Okay  \space \color{purple}Now. {}}$$
 
-,, TYLER THE CREATOR SHE ”
+$$\color{white}But  \space \color{white}One \space \color{white}Day \space \color{white}You're {\color{white}Gonna \space \color{white} Slip \space \color{white} Up  \space \color{white}And  \space \color{purple}Die {}}$$
+
+$$\space \color{white}Then  \space \color{white}Whats \space \color{white}Gonna \space \color{white} Happen {\color{white} To \space \color{white} Me, \space \color{white} Yknow?{}}$$
+
+--
+
+$$\space \color{white} I \space \color{white }know \space \color{white} but \space \color{white} What \space \color{white}I'm\space \color{white}Saying\space \color{white}Is \space \color{white}Yeah,  \space \color{white}You \space \color{white}Might \space \color{white}Get {\color{white}Better. \space \color{white} But, \space \color{white} You'll \space \color{white} be \space \color{white} \space \color{purple} perfect.{}}$$
+
+
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════
 
@@ -22,7 +30,7 @@ ORIGINALLY AS: @dummyinbed ,,
 
 ✦⋆𓆩✧𓆪⋆✦
 
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=Enemies&color=blueviolet&style=flat)
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=Journals&color=blueviolet&style=flat)
 
 [𝘗𝘙𝘖𝘕𝘖𝘜𝘕𝘚𝘊𝘊](https://pronouns.cc/@AngelWithoutwings) 𝜗𝜚 [𝘈𝘛𝘈𝘉𝘖𝘖𝘒](https://dummysblood.atabook.org/) 
 
@@ -38,6 +46,7 @@ ORIGINALLY AS: @dummyinbed ,,
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
 
 TAX DUO HEAVY COMF / C'link ,
+https://github.com/user-attachments/assets/4dca325b-386d-475e-9b09-a1cd14473bc4
 
 I heavykin eggchan, doubles are okay but please dont rub it in my face
 
@@ -45,4 +54,4 @@ Wemmbu kins are more than welcome to call themself wemmbu around me
 
 ![image alt](https://media.discordapp.net/attachments/1028737434252488756/1436841118242443384/IMG_8496.jpg?ex=69111211&is=690fc091&hm=f35ec35abfd839929d8d2a3cca7bbc12b0ff69b56be81a80f3765552995d6157&=&format=webp&width=846&height=846)
 
-𝘏𝘦𝘭𝘭𝘰 [𝘈𝘶𝘣𝘳𝘦𝘦,,♡](https://github.com/sspacedoutz) !
+𝘏𝘦𝘭𝘭𝘰 [𝘸𝘦𝘮𝘮𝘣𝘺!,,♡](https://github.com/sspacedoutz) !
