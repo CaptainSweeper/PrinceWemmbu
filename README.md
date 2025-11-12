@@ -3,6 +3,7 @@
 <div align="center">
 
 
+
 ═════════════════════════════════════════════════════════════════════════════════════
 
 $${\color{white}Theres \space \color{white} More \space \color{white} Ways  \space \color{white}To  \space \color{white}Be \space \color{white}Strong  \space \color{white}Than \space \color{white}PvP'ing \space \color{white}Y'know? {}}$$
@@ -55,3 +56,7 @@ I heavykin eggchan, doubles are okay but please dont rub it in my face
 
 Wemmbu kins are more than welcome to call themself wemmbu around me
 
+--
+
+I dislike being purposely covered, if I'm laying down that means I am okay with being covered,
+Only in a cuddling way. I prefer to be the one being cuddled though (having someone infront or behind me)
