@@ -8,7 +8,7 @@
 
 $${\color{white}Theres \space \color{white} More \space \color{white} Ways  \space \color{white}To  \space \color{white}Be \space \color{white}Strong  \space \color{white}Than \space \color{white}PvP'ing \space \color{white}Y'know? {}}$$
 
-![](https://media.discordapp.net/attachments/1028737434252488756/1438005105411625141/IMG_8791.jpg?ex=69154e1d&is=6913fc9d&hm=118bb7e28aa4ecbf7e8a9363f0165d6db2eae44a6858f40e7c07fb25a59c398c&=&format=webp&width=1093&height=846)
+![](https://media.discordapp.net/attachments/1028737434252488756/1438016079904637000/IMG_8796.jpg?ex=69155856&is=691406d6&hm=aad383d1c4de7d33a53def983baf98a25b79a44e57371265017e1b1980f998ef&=&format=webp&width=741&height=959)
 
 <div align="center">
 
