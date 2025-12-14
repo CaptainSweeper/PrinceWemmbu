@@ -34,6 +34,9 @@ ORIGINALLY AS: @dummyinbed ,,
 @chemlqb
 [leanmoster] whispers: aww look at you with c+h in yourr namee awww its so cuttee that you want someone to cuddle you and hold your tiny little pixel hooveeess :3 so cutteee
 
+@ZEROHORIZON
+[Fatjss] lets c*h~
+
 [𝘞𝘦𝘮𝘮𝘣𝘶](https://github.com/IHASAFACE-LULZ)
 
 ✦⋆𓆩✧𓆪⋆✦
