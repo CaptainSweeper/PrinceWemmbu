@@ -28,15 +28,6 @@ $${\color{white}He \space \color{white}Said \space \color{white} :  \space \colo
 ORIGINALLY AS: @dummyinbed ,,
 <div align="center">
 
-@pwretty
-[flower rhythm] whispers: when u at yo dirty hbs crib and u tryna ignore the burger king cup full of pee in the corner but a roach lwk does a nasty cannonball into it sprays onto ur leg so now u gotta slime out ur hb and his dog
-
-@chemlqb
-[leanmoster] whispers: aww look at you with c+h in yourr namee awww its so cuttee that you want someone to cuddle you and hold your tiny little pixel hooveeess :3 so cutteee
-
-@ZEROHORIZON
-[Fatjss] lets c*h~
-
 [𝘞𝘦𝘮𝘮𝘣𝘶](https://github.com/IHASAFACE-LULZ)
 
 ✦⋆𓆩✧𓆪⋆✦
